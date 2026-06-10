@@ -1,4 +1,4 @@
-# 
+# Nativo momentum trading bot predefinições para Mac OS | Automático momentum trading bot predefinições para PC Windows. Com gerenciamento de carteira e execução de ordens limite — otimizado para máximo desempenho em cada plataforma.
 
 
 
